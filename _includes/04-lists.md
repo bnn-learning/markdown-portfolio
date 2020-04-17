@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Mountain streams
+2. Fly fishing for trout
+3. Learning something new
