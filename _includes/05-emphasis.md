@@ -1,0 +1,3 @@
+- I'm a __quick learner__
+- I'm a __hard worker__
+- I don't *fool around*
